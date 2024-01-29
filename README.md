@@ -1,1 +1,1 @@
-# technews
+# oferta ativa
